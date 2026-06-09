@@ -1,4 +1,4 @@
-
+vip Script for anime card collection offers the most advanced anime card collection Script, with invisibility and speed. Perfect for dominating any
 
 
 
